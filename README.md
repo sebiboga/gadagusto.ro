@@ -1,0 +1,2 @@
+# gadagusto.ro
+gadagusto.ro
